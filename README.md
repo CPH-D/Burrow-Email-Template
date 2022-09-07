@@ -1,1 +1,1 @@
-# Burrow-Email-Template
+# Burrow Labor Day Sale Email Template
